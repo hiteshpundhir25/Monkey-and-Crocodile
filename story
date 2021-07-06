@@ -1,0 +1,3 @@
+Once upon a time in a forest there lived a monkey who resided on berry tree, which was on the banks of a river. In the same forest there lived a crocodile and his wife. One day the crocodile came to the banks 
+of the river and rested under a tree. The kind hearted monkey offered him some fruits. The crocodile came back the next day for more fruits. A the days passed by the crocodile and the monkey became good friends.
+The monkey wanted to make cloth for himself from the skin of crocodile. He slowly befriend the crocodile by feeding berries. The berries were delecious and the crocodile liked it. After some time monkey started poisoning the berries.
